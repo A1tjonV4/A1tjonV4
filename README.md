@@ -1,0 +1,4 @@
+- 👋 Goduv Knejte
+- 👀 Fivem Udvikler
+- 🌱 Fivem Sælger
+- 💞️ Fivem Leaker
